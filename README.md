@@ -73,4 +73,4 @@ Tr1t0n
 
 راه ارتباطی تلگرام:
 
-@Tr1tons
+[@Tr1tons](https://t.me/Tr1tons)
